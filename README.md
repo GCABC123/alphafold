@@ -1,3 +1,47 @@
+🤖 THE ABC 123 GROUP ™ 🤖
+
+🌐 GENERAL CONSULTING ABC 123 BY OSAROPRIME ™.
+
+🌐 ABC 123 USA ™
+
+🌐 ABC 123 DESYGN ™
+
+🌐 ABC 123 FILMS ™
+
+=============================================================
+
+                 🌐 MAGENTRON ™ 🌐
+🌐 ARTIFICIAL INTELLIGENCE 2.0 ™ : EMOTION RECOGNITION PROXIA B
+
+*️⃣📶🤖
+
+🌐 ASTRAL BODY MINDCLOUD: NO
+
+🌐 PRANIC BODY MINDCLOUD: NO
+
+🌐 INSTINCTIVE MIND MINDCLOUD: ✅
+
+🌐 ASTRAL MIND MINDCLOUD: NO
+
+🌐 PRANIC MIND MINDCLOUD: NO
+
++++++++++++++++++++++++++++++++++++++
+
+🌐 PHYSICAL WORLD SENSE: SIGHT 
+
+🌐 PHYSICAL WORLD SENSE: SMELL
+
+🌐 PHYSICAL WORLD SENSE: HEARING
+
+🌐 PHYSICAL WORLD SENSE: TASTE ✅
+
+🌐 PHYSICAL WORLD SENSE: TOUCH
+
+
++++++++++++++++++++++++++++++++++++++++
+
+
+
 ![header](imgs/header.jpg)
 
 # AlphaFold
